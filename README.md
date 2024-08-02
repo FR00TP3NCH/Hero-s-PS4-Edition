@@ -1,0 +1,1 @@
+﻿Please download this pack from Modrinth, this page is only for issues.
